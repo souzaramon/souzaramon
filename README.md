@@ -1,4 +1,4 @@
-### Hi there 👋
+### Hi there 🧙
 🎉 I'm **Ramon**<br>
 📌 I work with *React, NodeJS, Jest* and *AWS*<br>
 <br>
