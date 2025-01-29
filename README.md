@@ -1,7 +1,8 @@
 ʕ◔ϖ◔ʔ
 
 <hi.souzaramon@gmail.com><br>
-1EB6B270636800D2EC975D63F3CCC72045142014
+1eb6b270636800d2ec975d63f3ccc72045142014
 
-<ramon.souza@talentinc.com><br>
-94630C0EF8A10524F194EAF097F027623168DA33 
+<ramon.souza@career.io><br>
+81b38dcd8d38bba21832e7999c10e9bdb6d9ac4a
+ 
